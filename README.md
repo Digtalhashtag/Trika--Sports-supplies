@@ -1,2 +1,2 @@
-# Trika-Sports-supplies
+# Treka-Sports-supplies
 مكتب توزيع جملة وقطاعي لجميع الملابس والألعاب والأدوات الرياضية
